@@ -1,4 +1,4 @@
-👋 Hi, I'm @montzx
+👋 Hi, I'm montzx
 Saya adalah mahasiswa Teknik Komputer yang memiliki minat pada bidang teknologi informasi, pemrograman, dan sistem komputer.
 Saat ini saya menempuh pendidikan di salah satu kampus berbasis komputer di Yogyakarta.
 
